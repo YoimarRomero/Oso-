@@ -1,0 +1,2 @@
+# Oso-
+Unosoconcamisanegrapantalóngrisyunamochilaazulhaciendtareasenunasilla  
